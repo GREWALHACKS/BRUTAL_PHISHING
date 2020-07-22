@@ -1,2 +1,0 @@
-# BRUTAL_PHISHING
-Enjoy!!
